@@ -1,2 +1,5 @@
 ## Hi There :)
-<img width="400" height="210" alt="claude-mail" src="https://github.com/user-attachments/assets/6bac8bfc-d103-47fd-ae1d-f7595a7157e3" />
+
+🥀 <br>
+<img width="403" height="152" alt="image" src="https://github.com/user-attachments/assets/9c9bc93c-6267-46ff-91b7-aec3132bc5ab" />
+
